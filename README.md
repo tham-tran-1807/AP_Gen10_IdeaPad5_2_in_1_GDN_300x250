@@ -1,0 +1,2 @@
+# AP_Gen10_IdeaPad5_2_in_1_GDN_300x250
+AP_Gen10_IdeaPad5_2_in_1_GDN_300x250
